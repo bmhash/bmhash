@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @bmhash, a 37 year old project manager and very soon to be father and just love to rock climb.
+- 👋 Hi, I’m @bmhash, a 38 year old project manager, a father, love DJing and rock climbing!
 Apart from that, computer geek, want to get into programming and start to plunge into data science!
